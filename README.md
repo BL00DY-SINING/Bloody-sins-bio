@@ -37,4 +37,7 @@ i'm still a person so don't treat me like an object.
 <img width="640" height="360" alt="Tumblr_ Image" src="https://github.com/user-attachments/assets/f3904f3b-4c82-435a-b0a5-65b609179e0e" />
 
 
+<img width="540" height="200" alt="Post by @blog-de-segunda · 10 images" src="https://github.com/user-attachments/assets/6b4eaf91-b582-4915-81b2-c04ca7ffaaac" />
+
+
 
