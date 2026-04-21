@@ -1,4 +1,5 @@
 
+
 # Bloody-sins-bio
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31ypddj4cxdomrhjyvzl3meny2se&cover_image=true&theme=default&show_offline=true&background_color=58525b&interchange=true&profanity=false&bar_color=000b61&bar_color_cover=true)](https://spotify-github-profile.kittinanx.com/api/view?uid=31ypddj4cxdomrhjyvzl3meny2se&redirect=true)
  
@@ -10,3 +11,4 @@ i'm still a person so don't treat me like an object.
  feel free to int anytime u see me!
 
  -WORKING PROGRESS GNA MAKE IT SHINY LTR-
+<img width="270" height="50" alt="pulse" src="https://github.com/user-attachments/assets/58f535fe-9a23-4a85-878c-c65fbb6ec716" />
