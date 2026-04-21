@@ -9,9 +9,11 @@
 
 <p align="center">
 
-  [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31ypddj4cxdomrhjyvzl3meny2se&cover_image=true&theme=default&show_offline=true&background_color=58525b&interchange=true&profanity=false&bar_color=000b61&bar_color_cover=true)](https://spotify-github-profile.kittinanx.com/api/view?uid=31ypddj4cxdomrhjyvzl3meny2se&redirect=true)
- 
-                              
+<p align="center">
+  <a href="https://spotify-github-profile.kittinanx.com/api/view?uid=31ypddj4cxdomrhjyvzl3meny2se&redirect=true">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31ypddj4cxdomrhjyvzl3meny2se&cover_image=true&theme=spotify-embed&show_offline=true&background_color=3a181f&interchange=true&profanity=false&mode=dark&bar_color=4b0101&bar_color_cover=false">
+  </a>
+</p>
                                  
                                  
                                  
