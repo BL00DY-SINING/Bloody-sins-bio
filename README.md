@@ -51,4 +51,4 @@
 <img width="150" height="20" alt="dog1" src="https://github.com/user-attachments/assets/780dae84-c72a-408d-b20e-150737e6e6fb" />
 
 
-<img width="500" height="33" alt="paws" src="https://github.com/user-attachments/assets/da2ca979-6dbd-48e0-85b5-d7d2cb51ceba" /> <img width="500" height="33" alt="paws" src="https://github.com/user-attachments/assets/da2ca979-6dbd-48e0-85b5-d7d2cb51ceba" />
+  <img width="500" height="33" alt="paws" src="https://github.com/user-attachments/assets/da2ca979-6dbd-48e0-85b5-d7d2cb51ceba" /> 
