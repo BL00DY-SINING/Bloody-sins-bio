@@ -2,6 +2,8 @@
 
 
 # HIYA :P-SIN'S BIO-
+<p align="center">
+[Profile view counter on GitHub](https://komarev.com/ghpvc/?username=BL00DY-SINING)
 
 
 <p align="center">
