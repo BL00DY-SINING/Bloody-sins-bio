@@ -22,10 +22,10 @@ HEYA I'M SAI- SINS - NAMELESS - OR PSYCH ONLINE
 ·̇·̣̇̇·̣̣̇·̣̇̇·̇ •❣•୨୧┈┈┈୨୧•❣• ·̇·̣̇̇·̣̣̇·̣̇̇·̇
 <p align="center">
 I go by He/It/Pup, any tbh i just prefer masc ones, idm fem pronouns 
-
+·̇·̣̇̇·̣̣̇·̣̇̇·̇ •❣•୨୧┈┈┈୨୧•❣• ·̇·̣̇̇·̣̣̇·̣̇̇·̇
  <p align="center">           
 I'm a pround misanthrope :3 and uhh alterhuman [Labels include:fictkin.therian.nonhuman]
-           
+·̇·̣̇̇·̣̣̇·̣̇̇·̇ •❣•୨୧┈┈┈୨୧•❣• ·̇·̣̇̇·̣̣̇·̣̇̇·̇   
 
 
 
