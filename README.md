@@ -27,8 +27,7 @@ i'm still a person so don't treat me like an object.
 <img width="150" height="20" alt="men_lovers" src="https://github.com/user-attachments/assets/caf266d6-d85d-4637-a630-138e3726cb83" />
 
 
-
-<img width="324" height="305" alt="X" src="https://github.com/user-attachments/assets/514c2d9f-3c5d-4e42-a4ed-759f0611c31b" />
-
 <img width="640" height="360" alt="Tumblr_ Image" src="https://github.com/user-attachments/assets/f3904f3b-4c82-435a-b0a5-65b609179e0e" />
+
+
 
