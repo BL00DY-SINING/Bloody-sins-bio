@@ -7,8 +7,8 @@
 <p align="center">
 <img width="1232" height="15" alt="typewriter (1)" src="https://github.com/user-attachments/assets/113e5259-62f7-42d9-8f00-0f258edd2348" />
 
-
 <p align="center">
+
   [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31ypddj4cxdomrhjyvzl3meny2se&cover_image=true&theme=default&show_offline=true&background_color=58525b&interchange=true&profanity=false&bar_color=000b61&bar_color_cover=true)](https://spotify-github-profile.kittinanx.com/api/view?uid=31ypddj4cxdomrhjyvzl3meny2se&redirect=true)
  
                               
@@ -27,6 +27,10 @@ I'm a pround misanthrope :3 and uhh alterhuman [Labels include:fictkin.therian.n
            
 
 
+
+
+
+<p align="center">
 <img width="270" height="50" alt="pulse" src="https://github.com/user-attachments/assets/58f535fe-9a23-4a85-878c-c65fbb6ec716" />
 <img width="270" height="50" alt="pulse" src="https://github.com/user-attachments/assets/ec7696ac-279f-4f4e-b4c0-dc14cf846526" />
 
