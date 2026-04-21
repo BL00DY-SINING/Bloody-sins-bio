@@ -19,7 +19,15 @@ i'm still a person so don't treat me like an object.
 
 <img width="150" height="20" alt="yum" src="https://github.com/user-attachments/assets/16fc50d6-c08f-4e57-b202-eba0ede0f9f4" />
 <img width="150" height="20" alt="aromanticpride" src="https://github.com/user-attachments/assets/d5c81175-6f1d-406c-9456-15609c6642c6" />
+
+
 <img width="150" height="20" alt="agenderpride" src="https://github.com/user-attachments/assets/53bac88a-3cf8-40c9-be62-b13f8b49a37f" />
 <img width="150" height="20" alt="men_lovers" src="https://github.com/user-attachments/assets/33bab3ab-ab46-4e70-89c6-3d4d159aa025" />
 <img width="150" height="20" alt="gay_as_f" src="https://github.com/user-attachments/assets/f78b375d-d272-43f1-a875-d9cca34a96c9" />
 <img width="150" height="20" alt="men_lovers" src="https://github.com/user-attachments/assets/caf266d6-d85d-4637-a630-138e3726cb83" />
+
+
+
+<img width="324" height="305" alt="X" src="https://github.com/user-attachments/assets/514c2d9f-3c5d-4e42-a4ed-759f0611c31b" />
+
+
