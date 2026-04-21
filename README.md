@@ -12,10 +12,6 @@
             
              I'm a pround misanthrope :3 and uhh alterhuman [Labels include:fictkin.therian.otherhearted.nonhuman]
            
- 
-   
-   Er er..thinks..My sexuality fkunctuates but its mostly MLM / Aromanticflux.             feel free to int anytime u see me!
- 
 
 
 <img width="270" height="50" alt="pulse" src="https://github.com/user-attachments/assets/58f535fe-9a23-4a85-878c-c65fbb6ec716" />
